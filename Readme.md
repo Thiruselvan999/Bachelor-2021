@@ -11,7 +11,7 @@
 **Release Info 🎫:** [December 3, 2021](https://www.imdb.com/title/tt11396290/releaseinfo)
 **Country 🇮🇳:** [India](https://en.m.wikipedia.org/wiki/India)    
 **Genre 🎭:** `#Drama`  
-**Language 🗣️:**  `#Tamil`  
+**Language 🗣️:**  `#Tamil + Telugu`  
 **Directors 🎥:** [Sathish Selvakumar](https://www.imdb.com/name/nm11182350/)    
 **Writers ✍️:** [Sathish Selvakumar](https://www.imdb.com/name/nm11182350/)   
 **Stars 🌟:** [Divya Bharathi](https://www.imdb.com/name/nm11882661/) [G.V. Prakash Kumar](https://www.imdb.com/name/nm1574854/) [Nakkalites Arun Kumar](https://www.imdb.com/name/nm13151169/)   
