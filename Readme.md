@@ -7,7 +7,7 @@
 </h1>
 
 **​️Title 🎬:** [Bachelor](https://www.imdb.com/title/tt11396290) **2021**    
-**Rating ⭐️:** `6.4 / 10`    
+**Rating ⭐️:** `6.4/10`    
 **Release Info 🎫:** [December 3, 2021](https://www.imdb.com/title/tt11396290/releaseinfo)
 **Country 🇮🇳:** [India](https://en.m.wikipedia.org/wiki/India)    
 **Genre 🎭:** `#Drama + #Romance`  
