@@ -1,4 +1,4 @@
-[![asciicast](https://telegra.ph/file/dd5a8948d23539f11189e.jpg)](https://youtu.be/nPAthjZdBUY)
+[![Bachelor-2021](https://telegra.ph/file/dd5a8948d23539f11189e.jpg)](https://youtu.be/nPAthjZdBUY)
 <h1 align="center">
     Bachelor [2021]
 </h1>
