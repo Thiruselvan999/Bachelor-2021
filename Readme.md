@@ -1,6 +1,10 @@
-<p align="center">
-  <vid src="https://youtu.be/nPAthjZdBUY">
 <p>
+
+  <a href="https://youtu.be/nPAthjZdBUY"><vid src="https://youtu.be/nPAthjZdBUY" /></a>
+
+    
+
+ </p>
 
 <h1 align="center">
     Bachelor [2021]
