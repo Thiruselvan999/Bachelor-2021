@@ -10,7 +10,7 @@
 **Rating ⭐️:** `6.4 / 10`    
 **Release Info 🎫:** [December 3, 2021](https://www.imdb.com/title/tt11396290/releaseinfo)
 **Country 🇮🇳:** [India](https://en.m.wikipedia.org/wiki/India)    
-**Genre 🎭:** `#Thriller + #Romance`  
+**Genre 🎭:** `#Drama + #Romance`  
 **Language 🗣️:**  `#Tamil + Telugu`  
 **Directors 🎥:** [Sathish Selvakumar](https://www.imdb.com/name/nm11182350/)    
 **Writers ✍️:** [Sathish Selvakumar](https://www.imdb.com/name/nm11182350/)   
