@@ -20,3 +20,10 @@
 ```
 A deeply flawed guy with behavioral issues and conservative background get into a live-in relationship with a hep modern girl and the problems that follow
 ```
+<details>
+	<summary><b>Download Now ▶️<b/></summary>
+	<brb>
+
+<b>The Easiest Way To Download<b/>
+
+<p align="center"><a href="https://mdisk.me/convertor/16x9/fry2g6"> <img src="https://img.shields.io/badge/Download%20Now%20▶️-white?style=for-the-badge&logo" width="220" height="38.45"/></a></p>
