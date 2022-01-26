@@ -26,4 +26,18 @@ A deeply flawed guy with behavioral issues and conservative background get into 
 
 <b>The Easiest Way To Download<b/>
 
-<p align="center"><a href="https://mdisk.me/convertor/16x9/fry2g6"> <img src="https://img.shields.io/badge/Download%20Now%20▶️-white?style=for-the-badge&logo" width="220" height="38.45"/></a></p>
+<p align="center"><a href="https://pdisklink.in/Bachelor_2022_400"> <img src="https://img.shields.io/badge/400MB%20Download%20Now%20▶️-white?style=for-the-badge&logo" width="220" height="38.45"/></a></p>
+
+<summary><b>730 MB Download Now ▶️<b/></summary>
+	<brb>
+
+<b>The Easiest Way To Download<b/>
+
+<p align="center"><a href="https://pdisklink.in/Bachelor_2022_730"> <img src="https://img.shields.io/badge/730MB%20Download%20Now%20▶️-white?style=for-the-badge&logo" width="220" height="38.45"/></a></p>
+
+<summary><b>1.50GB Download Now ▶️<b/></summary>
+	<brb>
+
+<b>The Easiest Way To Download<b/>
+
+<p align="center"><a href="https://pdisklink.in/Bachelor_2022_1_48GB"> <img src="https://img.shields.io/badge/1.50GB%20Download%20Now%20▶️-white?style=for-the-badge&logo" width="220" height="38.45"/></a></p>
